@@ -1,1 +1,3 @@
 # MoneyMovers-WatchOut-
+A prison guard and a police dog have been bored every day for a day. They all suddenly become different one day. The bell rings, an emergency situation occurs, and the prisoner escapes. In order to chase prisoners who escaped, the police picked up each one of the arsenals. Weapons were used to chase prisoners. At this time, the prison guards discovered that the arsenal had no weapons. There was only one handcuffs left, but he had no hesitation in the absence of any weapons.
+With his handcuffs and his brave police dog partner, bravely dispatched! Let us take a look at the strongest partner in this police station. Can we complete the task together?
